@@ -1,1 +1,4 @@
 # Class-assignment-3-14
+My name is Ryan Claycomb. I have worked in the automotive field majority of my life as a tech, and also in sales. My degree is in Automotive Systems Technology.
+My career goals is to learn more about coding in the Fintech area. I currently am leaning towards the blockchain aspect of Fintech and would like to start a new career in that area. 
+When i first heard about Fintech and everything that is associated with it, it was a big interest to me. I have been following crytocurrency for a couple years now and blockchain has a been something iv been very interested in and when i heard about the class I thought it would be a good career change for me and I think it would be something I would be good at. 
